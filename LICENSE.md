@@ -1,4 +1,4 @@
-#  
+#  Experience run for brainrots like never before with run for brainrots Script elite, the #1 Script. Includes one-hit kill and teleport for unbeatable
 
 
 
